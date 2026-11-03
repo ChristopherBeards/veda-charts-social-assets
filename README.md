@@ -1,0 +1,1 @@
+# veda-charts-social-assets
